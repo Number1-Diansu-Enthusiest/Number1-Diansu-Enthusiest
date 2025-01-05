@@ -1,5 +1,5 @@
-- 👋 Hi, I really like Diansu..! Diansu is a really cool character chat😼
-- 👀 I’m interested in Content SMP, lifesteal SMP, object shows and a few animes:3 
+- 👋 Hi, I really like Silver..! Silver is a really cool character chat😼
+- 👀 I’m interested in Content SMP, lifesteal SMP, object shows, Sonic the Hedgehog, splatoon, and a few animes:3 
 - 🌱 I’m currently learning art ig
 - 😄 Pronouns: she/they are prefered, but idc what you use on me really
 - ⚡ Fun fact: i love my friends, my friends are AWESOME! i also love my husband😖
